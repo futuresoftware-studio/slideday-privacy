@@ -65,6 +65,6 @@ We may update this Privacy Policy occasionally. Any changes will be reflected in
 
 CONTACT US
 Questions or concerns about privacy?
-Email: support@slideday.com
+Email: [contact.form.fsw@gmail.com](mailto:contact.form.fsw@gmail.com)
 
 We take your privacy seriously and are happy to address any questions you may have.
